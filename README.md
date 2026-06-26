@@ -7,6 +7,9 @@ I am multimedia designer based in San Diego, California, specialzing in graphic 
 Staying active, drawing and spending time with my cats. 
 
 ## What I am Doing Now
-Working fulltime for the County of San Diego, freelance design services, working on an Etsy shop with my artwork and revamping my web development skills. 
+• Focusing on freelance graphic and illustration services 
+• Obtaining my certification for Front End Web Development at San Diego Continuing Education 
+• Building my Etsy shop so I can showcase and sell my artwork
+• Working fulltime for the County of San Diego 
 
 [website](https://raquelmendoza.com/) | [linkedin](https://www.linkedin.com/in/raquel-mendoza/) | [instagram](https://devpost.com/rsmendoza1) 
